@@ -4,7 +4,7 @@
 
 Perkenalkan nama saya **Shobarudin alghozii**
 
-Saya seorang **Front end developer and Backend Developer Insyaallah kalo kuat :)**
+Saya seorang ** Backend Developer Insyaallah kalo kuat :)**
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/Shobarudin-alghozi/) ku ya.
 
